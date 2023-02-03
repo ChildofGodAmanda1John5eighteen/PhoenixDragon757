@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PhoenixDragon757
 - 👀 I’m interested in 🤑 💰🤑💰
-- 🌱 I’m currently learning social marketing
+- 🌱 I’m married to Jeremiah James Johnson and have an ESA Felix Philemon Myers
 - 💞️ I’m looking to collaborate on making money 💰💰💰💰
 - 📫 How to reach me call 7176394163 or email alamyers@yahoo.com
 
