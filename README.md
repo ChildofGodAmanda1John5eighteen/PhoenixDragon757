@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PhoenixDragon757 also known as Amanda Johnson DBA Amanda Myers LLC
- 👀 Jeremiah and Amanda are baptized believers in Jesus Christ
+🙏 Jeremiah and Amanda are baptized believers in Jesus Christ
 👫❤ Amanda Johnson married to Jeremiah James Johnson and Jeremiah James Johnson is married to Amanda Johnson.Let no Man Asunder
 🐈 Jeremiah and Amanda Johnson have an ESA named Felix Philemon Johnson
 Amanda, Jeremiah, and Felix Johnson are all healthy
